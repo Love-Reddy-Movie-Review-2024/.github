@@ -19,7 +19,7 @@ The film stars Anjan Ramachendra and Shravani Reddy, whose performances bring de
 <p> Love-Reddy Review </p>
 <p> Love Reddy Full Review </p>
 <p> Love Reddy 2024 Review </p>
-<> Love Reddy  </p>
+<p> Love Reddy  </p>
 <p> Love Reddy Watch Review </p>
 <p> Love Reddy HD watch Review </p>
 <p> Love Reddy HD 2024 Review </p>
